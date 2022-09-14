@@ -1,1 +1,1 @@
-# rsschool-cv
+https://DirektorKersh/rsschool-cv/cv
