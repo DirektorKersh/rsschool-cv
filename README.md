@@ -1,1 +1,1 @@
-https://DirektorKersh/rsschool-cv/cv
+https://DirektorKersh.github.io/rsschool-cv/
